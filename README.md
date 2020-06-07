@@ -14,7 +14,7 @@ Guns on the table?
 Reaching for cover
 still blade what 
 surprise, that - helping haaand
-not there to doll out
+not there to dole out
 make sure to fold up
 pow pow pow make sure
 it's on them
